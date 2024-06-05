@@ -6,8 +6,8 @@ Me encuentro trabajo en tráfico digital, incluidos los flujos de trabajo (funne
 Cualquier consulta me puedes hacer llegar a mi correo personal vallespinedo@gmail.com
 💡Sígueme en mis redes sociales 👇
 
-Facebook: https://web.facebook.com/temovp/
-Instagram: https://www.instagram.com/temovalles/
-Youtube: https://www.youtube.com/channel/UCUrhqTJdKmp8ayD0Yhg_Ymg
+Facebook: https://web.facebook.com/temovp/ <br>
+Instagram: https://www.instagram.com/temovalles/ <br>
+Youtube: https://www.youtube.com/channel/UCUrhqTJdKmp8ayD0Yhg_Ymg <br>
 
 Saludos 😄😄😄
